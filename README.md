@@ -1,0 +1,2 @@
+# Dayara-Bugyal-Trek
+Dayara Bugyal( which mean Himalayan Alpine Meadows ). It is located at Uttarakashi  district of Uttarakhand. Dahara Bugyal is a popular, trekking and campaign destination. Bugyal has average elevation of 11,939ft and around 40km Uttarkashi. The trek is open through out the year except the monsoon. Garhwal Himalaya including  Nandadevi, Bandar Pooch and Swargarohini can be seen from Dayara Bugyal. It is rich in flora  &amp; fauna nestled between the Deodar and Rhododendron trees.
